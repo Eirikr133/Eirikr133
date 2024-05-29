@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Eirikr133
 - 👀 I’m interested in astronomy.
-- 🌱 I’m currently learning machine learning.
-- 💞️ I’m looking to collaborate on anything! Just hit me up!
+- 🌱 I’m currently learning graphic design.
 - 📫 How to reach me:
 - https://www.linkedin.com/in/erica-mei-sandell-957aaa25a
 - https://www.instagram.com/tobbiii86/
